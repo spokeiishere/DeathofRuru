@@ -148,7 +148,7 @@ etc.
 
 i could try learning new fandoms 
 <!--  
-**DieathofRuru/DeathofRuru** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+**spokeiishere/DeathofRuru** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
 
