@@ -2,10 +2,12 @@
 
 
 
- fun fact! i am spoke trust me
+ fun fact! i am spok trust me
+ 
 
 (i code for fun!)
 ## 🎣
+i like fisch
 
 ## DNI
 d*blefedora shippers
