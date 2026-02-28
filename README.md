@@ -21,19 +21,17 @@ homophobic people
 
 transphobic people
 
-M@ppr*de 
-
 cultist 
-
-tcc!al fans
-
-Alfr*d's pl@yhouse fans
 
 rct@ people 
 
-h@zbin hotel fans
+p3d0ph1les
+
+Incest supporters
 
 proshippers who supports d@rkships
+
+weird people who doesn't respect boundaries 
 
 ## INT
 basically everyone except the ones on dni
