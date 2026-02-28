@@ -5,7 +5,6 @@
  fun fact! i am spok trust me
  
 
-(i code for fun!)
 ## 🎣
 i like fisch
 
